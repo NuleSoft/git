@@ -8,6 +8,6 @@ Agrego cosas, para que se vean en el repositorio de GitHub !!!!
 
 Estos cambios los hice con la computadora de escritorio para el proyecto de la organización. :D 1!!!!!1
 
-Que tengas buenos días ¡!!!
+Que tengas buenos días cambios desde la pc ¡!!!
 
 
